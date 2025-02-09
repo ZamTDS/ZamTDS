@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ZamTDS
-- 👀 I’m interested inlearning standalone coding and development 
+- 👀 I’m interested in learning standalone coding and development 
 - 🌱 I’m currently learning Java/C#/Python
-- 📫 How to reach me:- my dc is cosmic.horizon4
+- 📫 How to reach me:- my discord is cosmic.horizon4
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Everything in the world is possible if you start trying it yourself from today
