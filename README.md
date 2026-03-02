@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Java/C#/Python
 - 📫 How to reach me:- my discord is cosmic.horizon4
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Everything in the world is possible if you start trying it yourself from today
+- Trump can go and f*ck up his ass 🇺🇸🖕
